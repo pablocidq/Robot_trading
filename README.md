@@ -1,0 +1,1 @@
+https://cdn.discordapp.com/attachments/1169361259725074484/1169641427383365632/challenge_1.png?ex=65ce1cf7&is=65bba7f7&hm=2b72cb5a883735c6abd6f41f7ddf9b11530e00c48db09473f99e40ae29df3264&
